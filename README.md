@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Julio(@ljl20011223)
+- 👀 I’m interested in cooking / debugging / travelling …
+- 🌱 I’m currently learning Thai language @ China
+- 📫 Connect @ lanzhou@ilovelz.com
